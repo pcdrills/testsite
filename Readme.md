@@ -1,1 +1,6 @@
-# Test Site to see it works before pushing out
+# pcdrills
+Where you find help on how to handle your computer related issues
+Feel free to inquire...
+#Check us on our Facebook Page | Instagram | Tiktok | Telegram | WhatsApp | Twitter.
+Please support us by referring us to your friends.
+We're waiting...
